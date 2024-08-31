@@ -16,13 +16,13 @@
 [Talent500 - saumyasaxena](https://talent500.co/blog/author/saumya-saxena/), <br />
 
 📫 How to reach me : <br />
-[LinkedIn - @saumya2730](https://www.linkedin.com/in/saumyasaxena27/) , <br />
-[Youtube - @upGrow](https://www.youtube.com/channel/UC_jIWWEU_8ROmlZc9vOdR4A) , <br />
+[LinkedIn - @saumya2730](https://www.linkedin.com/in/codewithsaxena/) , <br />
 [Youtube - @codewithsaxena](https://www.youtube.com/@codewithsaxena) , <br />
 [Twitter - @codewithsaxena](https://x.com/codewithsaxena) , <br />
-[Instagram - @saumya_flutterdev](https://www.instagram.com/saumya_flutterdev/) <br />
 [Instagram - @codewithsaxena](https://www.instagram.com/codewithsaxena/) <br />
 [Hashnode - @codewithsaxena](https://codewithsaxena.hashnode.dev/) <br />
+[Youtube - @upGrow](https://www.youtube.com/channel/UC_jIWWEU_8ROmlZc9vOdR4A) , <br />
+[Instagram - @saumya_flutterdev](https://www.instagram.com/saumya_flutterdev/) <br />
 
 😄 Pronouns: She/Her
 
