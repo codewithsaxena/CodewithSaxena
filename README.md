@@ -16,7 +16,7 @@
 [Talent500 - saumyasaxena](https://talent500.co/blog/author/saumya-saxena/), <br />
 
 📫 How to reach me : <br />
-[LinkedIn - @saumya2730](https://www.linkedin.com/in/codewithsaxena/) , <br />
+[LinkedIn - @codewithsaxena](https://www.linkedin.com/in/codewithsaxena/) , <br />
 [Youtube - @codewithsaxena](https://www.youtube.com/@codewithsaxena) , <br />
 [Twitter - @codewithsaxena](https://x.com/codewithsaxena) , <br />
 [Instagram - @codewithsaxena](https://www.instagram.com/codewithsaxena/) <br />
